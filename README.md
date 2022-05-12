@@ -1,2 +1,0 @@
-# PAGA-MAYO
-PAGA MAYO
